@@ -1,2 +1,2 @@
-![Alt Tag] (https://postimg.cc/0bRjdXt8)
+![Alt Tag](https://i.postimg.cc/SNj94wCz/image-da71-gradientmap-pro.png)
 
