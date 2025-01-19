@@ -1,2 +1,2 @@
-![Alt Tag](https://i.imgur.com/PYV4crq.png (https://postimg.cc/0bRjdXt8))
+![Alt Tag] (https://postimg.cc/0bRjdXt8)
 
