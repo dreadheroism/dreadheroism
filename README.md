@@ -30,3 +30,5 @@ Note: Im socially awkward, so please be patient w/ me, plus I srs hate confronta
 ![Alt Tag](https://i.postimg.cc/TPfhbNvR/IMG-0363.png)
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
+
+![Alt Tag](https://i.postimg.cc/9FfkmZ8t/image.png)
