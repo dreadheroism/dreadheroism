@@ -3,7 +3,7 @@ Note: Im socially awkward, so please be patient w/ me, plus I srs hate confronta
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nc37a3uhfxoaqtmfu5bno3sxxm&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-[![Alt Tag](https://i.postimg.cc/k5kL2zbS/cooltext512680035391511.png)](https://personality.straw.page)
+[![Alt Tag](https://i.postimg.cc/kXqNnsBB/IMG-0366.webp)](https://personality.straw.page)
 
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
