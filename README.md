@@ -26,9 +26,9 @@ Note: Im socially awkward, so please be patient w/ me, plus I srs hate confronta
 ![Alt Tag](https://i.postimg.cc/nVG2Qrjd/IMG-0370.webp)
 
 
-![Alt Tag](https://i.postimg.cc/FHQKtCRq/IMG-0362.png)
+
 [![Alt Tag](https://i.postimg.cc/7b88JLQJ/cooltext512683486181686.png)](https://personality.straw.page)
-![Alt Tag](https://i.postimg.cc/TPfhbNvR/IMG-0363.png)
+
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
 
