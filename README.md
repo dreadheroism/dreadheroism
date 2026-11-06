@@ -1,5 +1,6 @@
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
-Note: Im socially awkward, so please be patient w/ me, plus I srs hate confrontation.
+![Alt Tag]
+(https://i.postimg.cc/RhDZHgc4/1F1A61EA-BC91-4764-A003-40E118BCA329.jpg)
 
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
 ![Alt Tag](https://i.postimg.cc/qRMssXCn/IMG-0381.webp)
