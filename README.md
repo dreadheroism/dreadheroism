@@ -3,6 +3,8 @@
 | <div align="center">[Strawpage](https://personality.straw.page) 🌸&bull;🌸 [Atabooks](https://gegeeg.atabook.org)</div> |
 | :---: |
 
+![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
+
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
 ![Alt Tag](https://i.postimg.cc/qRMssXCn/IMG-0381.webp)
@@ -27,10 +29,5 @@
 ![Alt Tag](https://i.postimg.cc/Zqvj9Lp0/IMG-0372.webp)
 ![Alt Tag](https://i.postimg.cc/Rh4TD58t/IMG-0371.webp)
 ![Alt Tag](https://i.postimg.cc/nVG2Qrjd/IMG-0370.webp)
-
-
-
-
-![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
 
 ![Alt Tag](https://i.postimg.cc/9FfkmZ8t/image.png)
