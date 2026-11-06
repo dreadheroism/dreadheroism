@@ -1,6 +1,11 @@
 [![1F1A61EA-BC91-4764-A003-40E118BCA329.jpg](https://i.postimg.cc/90KqhmgY/1F1A61EA-BC91-4764-A003-40E118BCA329.jpg)](https://postimg.cc/JH3h3LLs)
 
-<p align=“center”>[**Strawpage**](https://personality.straw.page) | & |[**Atabook**](https://gegeeg.atabook.org)</p>
+<p align="center">
+  [**Strawpage**](https://personality.straw.page) • [**Atabook**](https://gegeeg.atabook.org)
+</p>
+
+
+<p align=“center”>[**Strawpage**](https://personality.straw.page) | & |[**Atabook**]()</p>
 
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
