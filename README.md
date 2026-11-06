@@ -1,6 +1,6 @@
 [![1F1A61EA-BC91-4764-A003-40E118BCA329.jpg](https://i.postimg.cc/90KqhmgY/1F1A61EA-BC91-4764-A003-40E118BCA329.jpg)](https://postimg.cc/JH3h3LLs)
 
-| <div align="center">[Strawpage](https://personality.straw.page) 🌸&bull;🌸 [Atabooks](https://gegeeg.atabook.org)</div> |
+| <div align="center">[Strawpage](https://personality.straw.page) 🌸&bull;🌸 [Atabook](https://gegeeg.atabook.org)</div> |
 | :---: |
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
