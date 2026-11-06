@@ -1,6 +1,6 @@
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
 
-![Alt Tag] (https://i.postimg.cc/VLhFf10b/1F1A61EA-BC91-4764-A003-40E118BCA329.jpg)
+![Alt Tag] (https://i.postimg.cc/90KqhmgY/1F1A61EA-BC91-4764-A003-40E118BCA329.png)
 
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
 ![Alt Tag](https://i.postimg.cc/qRMssXCn/IMG-0381.webp)
