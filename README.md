@@ -1,8 +1,8 @@
 [![1F1A61EA-BC91-4764-A003-40E118BCA329.jpg](https://i.postimg.cc/90KqhmgY/1F1A61EA-BC91-4764-A003-40E118BCA329.jpg)](https://postimg.cc/JH3h3LLs)
 
 
-| <div align="center">[Strawpage](https://personality.straw.page) &bull; [Atabook](https://gegeeg.atabook.org)</div> |
-| :---: |
+🌸 | <div align="center">[Strawpage](https://personality.straw.page) &bull; [Atabook](https://gegeeg.atabook.org)</div> |
+| :---: | 🌸
 
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
@@ -30,8 +30,6 @@
 ![Alt Tag](https://i.postimg.cc/nVG2Qrjd/IMG-0370.webp)
 
 
-
-[![Alt Tag](https://i.postimg.cc/7b88JLQJ/cooltext512683486181686.png)](https://personality.straw.page)
 
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
