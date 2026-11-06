@@ -4,9 +4,6 @@
 | <div align="center">[Strawpage](https://personality.straw.page) &bull; [Atabook](https://gegeeg.atabook.org)</div> |
 | :---: |
 
-
-<div align="center">[**Strawpage**]() • [**Atabook**]()</div>
-
 ![Alt Tag](https://i.postimg.cc/3Rjsv97R/IMG-0360.png)
 ![Alt Tag](https://i.postimg.cc/NFzp9ry0/IMG-0369.webp)
 ![Alt Tag](https://i.postimg.cc/qRMssXCn/IMG-0381.webp)
