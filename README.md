@@ -3,7 +3,9 @@
 | <div align="center">[Strawpage](https://personality.straw.page) 🌸&bull;🌸 [Atabook](https://gegeeg.atabook.org)</div> |
 | :---: |
 
--13 Iwc, or dni
+<p align="center">
+  -13 iwc, or dni
+</p>
 
 ![](https://komarev.com/ghpvc/?username=dreadheroism&label=Civillians&color=F2C9DA)
 
